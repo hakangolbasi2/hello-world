@@ -1,2 +1,2 @@
 # hello-world
-Insallah hersey daha iyi olur
+Insallah hersey daha iyi olur; insallah
